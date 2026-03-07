@@ -1,3 +1,3 @@
 # DEMO
 
-We tryna learn rn
+We tryna learn right now
